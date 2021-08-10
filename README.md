@@ -1,1 +1,1 @@
-个人博客：<https://tmylla.github.io>。
+个人博客：<https://gaussie.github.io>。
